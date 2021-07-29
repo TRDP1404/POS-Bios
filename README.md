@@ -1,2 +1,3 @@
 # POS-Bios
-Pug os but 
+Pug os but Im retarted so yay!
+
